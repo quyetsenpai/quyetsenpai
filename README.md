@@ -1,6 +1,9 @@
 - 👋 Hi, I’m @quyetsenpai
 - 👀 I’m Coder and Tester
 - 🌱 I’m currently a student in PTIT
+- You can call me by :
+  + FB : https://www.facebook.com/quyet.senpai2000
+  + Gmail : mrquyet2622k@gmail.com
 
 
 <!---
